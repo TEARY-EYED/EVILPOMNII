@@ -1,4 +1,10 @@
-<p align="center">(ᵕ—ᴗ—) </p>
-<p align="center"> <img width="200" height="100" alt="tenor" src="https://github.com/user-attachments/assets/e59b8073-820f-4f3d-910f-0c9a6d500735" /></p><p align="center"> 
-<p align="center"> ‎‎<p align="center"> <a href="https://rentry.co/syotoko" target="_blank">rentry</a> <a href="https://tokomarus.straw.page" target="_blank">strawpage</a>  <a href="https://pronouns.cc/@evilpomni" target="_blank">pronoun.cc</a> </p>
+<div align='center'>
 
+ 
+
+ <p align="center"> <img width="498" height="299" alt="tenor" src="https://github.com/user-attachments/assets/04ff46f3-9c2a-47a1-93f5-f9cb0974b47d" /> </p>
+ <div align='center'> 
+hi i like tadc and yuri and awesomeness
+ <div align='center'> 
+
+ [strawpage](https://tokomarus.straw.page)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/syotoko) ![]() ![]() ![]() ![]() ![]() [prn.cc](https://pronouns.cc/@evilpomnii)![]() ![]() ![]() ![]() ![]() 
