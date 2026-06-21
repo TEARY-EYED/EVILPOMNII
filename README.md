@@ -7,4 +7,4 @@
 hi i like tadc and yuri and awesomeness
  <div align='center'> 
 
- [strawpage](https://tokomarus.straw.page)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/syotoko) ![]() ![]() ![]() ![]() ![]() [prn.cc](https://pronouns.cc/@tadc)![]() ![]() ![]() ![]() ![]() [ata]([https://pronouns.cc/@tadc](https://abstrabbit.atabook.org/))![]() ![]() ![]() ![]() ![]() 
+ [strawpage](https://tokomarus.straw.page)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/syotoko) ![]() ![]() ![]() ![]() ![]() [prn.cc](https://pronouns.cc/@tadc)![]() ![]() ![]() ![]() ![]() [ata]([https://pronouns.cc/@tadc](https://abstrabbit.atabook.org))![]() ![]() ![]() ![]() ![]() 
