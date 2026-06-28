@@ -2,9 +2,8 @@
 
  
 
- <p align="center"> <img width="498" height="299" alt="tenor" src="https://github.com/user-attachments/assets/04ff46f3-9c2a-47a1-93f5-f9cb0974b47d" /> </p>
- <div align='center'> 
-hi i like tadc and yuri and awesomeness
+ <p align="center"> <img width="300" height="200" alt="tenor" src="https://i.pinimg.com/1200x/0f/1d/92/0f1d924638dc9e331e6d178fc22e54f3.jpg" /> </p>
  <div align='center'> 
 
- [strawpage](https://tokomarus.straw.page)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.co/syotoko) ![]() ![]() ![]() ![]() ![]() [prn.cc](https://pronouns.cc/@tadc)![]() ![]() ![]() ![]() ![]() [ata](https://abstrabbit.atabook.org)![]() ![]() ![]() ![]() ![]() 
+ ![]() ![]() [prn.cc](https://pronouns.cc/@tadc)![]() ![]() ![]() ![]() ![]() [ata](https://abstrabbit.atabook.org)![]() ![]() ![]() ![]() ![]() 
+<div align='center'> 
